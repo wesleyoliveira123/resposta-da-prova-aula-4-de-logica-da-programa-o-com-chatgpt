@@ -1,0 +1,1 @@
+# resposta-da-prova-aula-4-de-logica-da-programa-o-com-chatgpt
